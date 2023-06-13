@@ -17,4 +17,4 @@ Here are some ideas to get you started:
 # Profile 
 Hello, my name is `Khey`.
 i'm studying at University of Maritime Raja Ali Haji, I;m taking biology of education final year student. currently working on my thesis for daily basis and doing such a writing on my blog at medium. 
-kindly contact me on instagram for keep in touch
+kindly contact me on instagram for keep in touch @sitikhanisa
